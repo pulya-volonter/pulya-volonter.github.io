@@ -1,1 +1,0 @@
-# pulya-volonter.github.io
